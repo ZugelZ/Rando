@@ -5,5 +5,6 @@ It is so *original* no one has done it before
 > The best thing since sliced bread.
 
 
-<sub><sup><sub><sup><sub><sup><sub><sup><sub><sup><sub><sup>Please Support this project</sup></sub></sup></sub></sup></sub></sup></sub></sup></sub></sup></sub>
+
+<sub><sup><sub><sup>Please support the project</sup></sub></sup></sub>
 
